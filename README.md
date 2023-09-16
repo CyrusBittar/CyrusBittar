@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CyrusBittar
+- 👀 I’m interested in coding
+- 💞️ I’m looking to collaborate on making a video game
+- 📫 How to reach me cyrusmarcelbittar@gmail.com
